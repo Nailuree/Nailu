@@ -1,2 +1,2 @@
 # Nailu
-Fun ans Crazy
+Fun and Crazy
